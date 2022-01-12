@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @starjimo
+- 👀 I’m interested in developing apps
+- 🌱 I’m currently learning about blockchain
+- 💞️ I’m looking to collaborate on bringing financial solution to startups in tech
+- 📫 How to reach me nadjme.net
