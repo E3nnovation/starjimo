@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @starjimo
-- 👀 I’m interested in developing apps
+- 👋 Hi, I’m @E3nnovation
+- 👀 I’m interested in International Business Development
 - 🌱 I’m currently learning about blockchain
-- 💞️ I’m looking to collaborate on bringing financial solution to startups in tech
-- 📫 How to reach me nadjme.net
+- 💞️ I’m looking to collaborate on Succeed Innovation and bringing Financial Solution to Startups in Tech
+- 📫 How to reach me : linktr.ee/e3nnovation
