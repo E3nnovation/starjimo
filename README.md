@@ -2,4 +2,4 @@
 - 👀 I’m interested in International Business Development
 - 🌱 I’m currently learning about blockchain
 - 💞️ I’m looking to collaborate on Succeed Innovation and bringing Financial Solution to Startups in Tech
-- 📫 How to reach me : linktr.ee/e3nnovation
+- 📫 How to reach me : bit.ly/e3nnovation
